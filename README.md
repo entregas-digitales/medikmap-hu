@@ -1,0 +1,1 @@
+# MedikMap HU — Assets
